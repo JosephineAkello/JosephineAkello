@@ -22,6 +22,6 @@
 
 ### 🌸🌸🌸
 - 🎾 When I'm not coding, you'll find me playing Tennis/Padel, traveling, or dancing Zumba.
-- 💼 How to reach me: [LinkedIn](in/maureen-josephine-605127a9), [Twitter](https://twitter.com/J_Akello), [BlueSky](@maureenjosephine.bsky.social)
+- 💼 How to reach me: [LinkedIn](https://www.linkedin.com/in/maureen-josephine-605127a9), [Twitter](https://twitter.com/J_Akello), [BlueSky](https://bsky.app/profile/maureenjosephine.bsky.social)
 - 🌐 Swahili, English, A1 level German 🇩🇪 - currently upskilling 🥱 
 - Stalk me on LinkedIn for more juice 😉.
