@@ -16,7 +16,7 @@
 - 🥇 Google Women TechMaker Ambassador
 - 🏅 McKinsey & Company Next Gen Women Leader 2020
 - 💚 Women Developer Academy - Europe -> Mentor
-- 💙 Founded - FlutterKisumu, part of Flutter Community Network for developers in Western Kenya.
+- 💙 Founded - FlutterKisumu, part of the Global [Flutter Community Network](https://www.meetup.com/pro/flutter/) for developers in Western Kenya.
 - 🛠️ I write Technical stuff on [Medium!!](https://medium.com/@onyangomaureen95)
 - 🐻 I also recently started writing personal stuff on [Substack](https://substack.com/home/post/p-167075060) - Check me out, you will LOVE IT!!💛.
 
