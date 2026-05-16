@@ -1,6 +1,7 @@
 # My Profile
 - Hi, I'm MOJO
 - 🏅 A Software Engineer & [Google Developer Expert in Flutter & Dart](https://developers.google.com/profile/u/114034848000772338454) - (First Female Flutter GDE in Sub-Saharan Africa - SSA and 1st in Kenya 🇰🇪).
+- 💜 [Top 50 Most Influential Women in Kenya](https://www.linkedin.com/posts/maureen-josephine-605127a9_mamaafrica-tambuawomenintech-top50-ugcPost-7457112683721449472-cG4N) 2026 🇰🇪
 - 🌻 I love learning and exploring new things.
 - 🌱 Currently learning Golang & Google Gemini for Developers.
 - 🎨 I have a good eye for UI/UX Design
@@ -23,5 +24,5 @@
 ### 🌸🌸🌸
 - 🎾 When I'm not coding, you'll find me playing Tennis/Padel, traveling, or dancing Zumba.
 - 💼 How to reach me: [LinkedIn](https://www.linkedin.com/in/maureen-josephine-605127a9), [Twitter](https://twitter.com/J_Akello), [BlueSky](https://bsky.app/profile/maureenjosephine.bsky.social)
-- 🌐 Swahili, English, A1 level German 🇩🇪 - currently upskilling 🥱 
+- 🌐 Swahili, English, A2 level German 🇩🇪 - currently upskilling 🥱 
 - Stalk me on LinkedIn for more juice 😉.
