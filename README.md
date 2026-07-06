@@ -16,13 +16,13 @@
 - 🎙️ I occasionally give Tech Talks, ranging from Technical to motivational talks.
 - 🥇 Google Women TechMaker Ambassador
 - 🏅 McKinsey & Company Next Gen Women Leader 2020
-- 💚 Women Developer Academy - Europe -> Mentor
+- 💚 Women Developer Academy - Europe & Sub-Saharan Africa(SSA) -> Mentor
 - 💙 Founded - FlutterKisumu, part of the Global [Flutter Community Network](https://www.meetup.com/pro/flutter/) for developers in Western Kenya.
 - 🛠️ I write Technical stuff on [Medium!!](https://medium.com/@onyangomaureen95)
 - 🐻 I also recently started writing personal stuff on [Substack](https://substack.com/home/post/p-167075060) - Check me out, you will LOVE IT!!💛.
 
 ### 🌸🌸🌸
-- 🎾 When I'm not coding, you'll find me playing Tennis/Padel, traveling, or dancing Zumba.
+- 🎾 When I'm not coding, you'll find me playing Tennis/Padel, traveling, dancing Zumba, or taking swimming classes 🏊‍♀️.
 - 💼 How to reach me: [LinkedIn](https://www.linkedin.com/in/maureen-josephine-605127a9), [Twitter](https://twitter.com/J_Akello), [BlueSky](https://bsky.app/profile/maureenjosephine.bsky.social)
 - 🌐 Swahili, English, A2 level German 🇩🇪 - currently upskilling 🥱 
 - Stalk me on LinkedIn for more juice 😉.
